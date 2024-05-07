@@ -9,4 +9,4 @@ utilizoesse espacopara minha  organizacaoe compartilhamento dos meus projetos
 vitoriacipri@gmail.com
 @vivicipri
 
-https://i0.wp.com/www.portaldodog.com.br/cachorros/wp-content/uploads/2014/08/tumblr_n06l2mXy1T1scjbypo1_500.gif?resize=450%2C246&ssl=1
+https://media1.tenor.com/m/dj9jxfUbDHAAAAAd/dog-smile-dog.gif
